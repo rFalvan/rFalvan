@@ -1,5 +1,5 @@
 # 💫 About Me:
-❤️ Love the coffee, osu! and u <3
+❤️ Love coffee, osu! and u <3
 
 
 # 💻 Tech Stack:
